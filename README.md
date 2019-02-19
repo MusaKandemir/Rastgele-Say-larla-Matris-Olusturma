@@ -1,0 +1,1 @@
+# Rastgele-Say-larla-Matris-Olusturma
